@@ -1,1 +1,2 @@
-# This domain is under processing
+# The domain was recently purchased and the owner is still building the website.
+
